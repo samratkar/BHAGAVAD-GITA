@@ -1,5 +1,18 @@
 27/06/2020, 13:43:41
-[3.36. WHY WE SIN?]
+
+
+
+
+SHLOKA  |  SYNOPSIS
+--|--
+![3.36](../FLASHCARDS/3.36.svg)  | Why do we sin? We know something that will never help us. But still we continue to pursue that. Why?
+![3.37](../FLASHCARDS/3.37.svg)  | Desire for worldly things are like fire that devours everything that we have. It dries us up and makes us crave for even more things that we ever needed in the first place.
+![3.38](../FLASHCARDS/3.38.svg)  | The worldly desire acts as a veil that obstructs us from seeing the reality - Brahman.
+![3.39](../FLASHCARDS/3.39.svg)  | This worldly desire is like a fire that destroys everyhing. This is a powerful and dangerous enemy.
+![3.40](../FLASHCARDS/3.40.svg)  | This worldly desire uses the sense organs - internal and external as hideouts. The best strategy to keep these desires at bay is to keep these sense organs clean. That cleansing can be done by following the 4 paths together - Bhakti Yoga, Karma Yoga, Raja Yoga and Gyana Yoga.
+  |
+  |
+
 अथ केन प्रयुक्तोऽयं पापं चरति पूरुषः।
 अनिच्छन्नपि वार्ष्णेय बलादिव नियोजितः।।3.36।।
  <HIDEOUTS> Desire hides in the following hideouts within the body.
